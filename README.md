@@ -9,8 +9,8 @@ Thầm Huyền Thanh còn mua cho y gà con vịt con, vây rào tre quanh hậu
 Lục Cốc ngồi xổm trong hậu viện đếm gà đếm vịt, kinh sợ qua đi chỉ còn lại vui mừng, Thẩm Huyền Thanh nói những thứ này đều là của y.
 
 Link truyện:
-[https://tutruyenchu.com/truyen/Tieu-Phu-Lang-Ngoan-Ngoan](https://tutruyenchu.com/truyen/Tieu-Phu-Lang-Ngoan-Ngoan)
+[https://truyenchuhub.org/truyen/Tieu-Phu-Lang-Ngoan-Ngoan](https://tutruyenchu.com/truyen/Tieu-Phu-Lang-Ngoan-Ngoan)
 
 Link truyện khác:
-[https://tutruyenchu.com/danhsach/truyen-dam-my-hay](https://tutruyenchu.com/danhsach/truyen-dam-my-hay)
+[https://truyenchuhub.org/danhsach/truyen-dam-my-hay](https://tutruyenchu.com/danhsach/truyen-dam-my-hay)
 
